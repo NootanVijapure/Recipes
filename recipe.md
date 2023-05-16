@@ -1,0 +1,3 @@
+# Salad Recipe
+# On the lookout for a super side salad to accessorize with all your meals? Alex and I are always looking for a great green salad. (It’s like a great pair of shoes, right?) May we present, our new very favorite one: this incredible chopped salad. It’s classy and tight. There’s our homemade Italian dressing: tangy, savory, and herby. Add to that shallots, tomatoes, cucumber, and a zing from pepperoncini. Parmesan cheese seals the deal. Are you ready to get cooking? Because this chopped salad wants to be part of your kitchen repertoire.
+![](https://www.acouplecooks.com/wp-content/uploads/2019/05/Chopped-Salad-007-800x1000.jpg)
